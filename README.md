@@ -1,6 +1,6 @@
 # Mohammed Rehan
 Tron '29 @ UW <br/>
-I make stuff sometimes <br/>
+I am a Risk Taker, a Roadrunner, an Entrepreneur <br/>
 
 ---
 
