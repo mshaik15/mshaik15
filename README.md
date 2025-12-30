@@ -1,2 +1,2 @@
 # Mohammed Rehan
-2nd Year Mechatronics Engineering Student @ The University of Waterloo
+2B Mechatronics Engineering Student @ The University of Waterloo
